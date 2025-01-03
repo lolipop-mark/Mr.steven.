@@ -1,3 +1,5 @@
+![IMG_2965](https://github.com/user-attachments/assets/fa8eccab-0fe7-4883-a183-541442bddbf2)
+![IMG_2966](https://github.com/user-attachments/assets/581c7f43-c585-483c-adc1-9a3ad943fc1e)
 # Mr.steven.
 how to fix or what’s wrong with this code
 
